@@ -5,6 +5,8 @@
 <img width="1920" height="1080" alt="Image-6" src="https://github.com/user-attachments/assets/4d549a28-5a8b-47e7-944c-79231324a370" />
 <img width="2048" height="1536" alt="Image-3" src="https://github.com/user-attachments/assets/8f33cdae-770a-4020-a045-99ae1e97defd" />
 <img width="896" height="627" alt="Image-5" src="https://github.com/user-attachments/assets/74ce3fe8-311d-4ca5-8cc2-4f4bc0588d5f" />
+<img width="3088" height="2316" alt="IMG_3032" src="https://github.com/user-attachments/assets/c53fb36c-c768-4e78-8535-3d613e9492ed" />
+<img width="3088" height="2316" alt="IMG_2486" src="https://github.com/user-attachments/assets/af085a77-55fd-49c0-a2e3-d08937094fc2" />
 
 [BINI - Pantropiko (Official Instrumental) [zsQkqko036I].mp3](https://github.com/user-attachments/files/32703687/BINI.-.Pantropiko.Official.Instrumental.zsQkqko036I.mp3)
 
