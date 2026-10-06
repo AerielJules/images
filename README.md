@@ -15,6 +15,17 @@
 <img width="1280" height="889" alt="IMG_0823" src="https://github.com/user-attachments/assets/c79a7781-69cd-4866-ac64-2944b8a36e8d" />
 <img width="1024" height="769" alt="received_2957740277743021" src="https://github.com/user-attachments/assets/60b642b6-2136-4ef3-a851-a99820195a79" />
 
+<img width="432" height="768" alt="IMG_20260s" src="https://github.com/user-attachments/assets/1c3ad4ef-d780-4499-9dc8-b633f4a22e65" />
+<img width="432" height="768" alt="IMG_202" src="https://github.com/user-attachments/assets/151c91dd-c5ea-4745-aeb9-af81b5dd55e4" />
+<img width="432" height="768" alt="IMG_202511" src="https://github.com/user-attachments/assets/26736714-09cf-4d24-824a-fc8f75c7c5e5" />
+
+<img width="432" height="768" alt="IMG_20260" src="https://github.com/user-attachments/assets/0d9c1d5e-2409-4831-b9ad-63cdedee03e3" />
+<img width="3088" height="2316" alt="IMG_1930" src="https://github.com/user-attachments/assets/622c37e4-739e-4eac-8a45-29ddabe5f4a3" />
+<img width="432" height="768" alt="IMG_1223" src="https://github.com/user-attachments/assets/897458ee-5587-43ff-996a-b8a5624aab6a" />
+
+
+
+
 
 [BINI - Pantropiko (Official Instrumental) [zsQkqko036I].mp3](https://github.com/user-attachments/files/32703687/BINI.-.Pantropiko.Official.Instrumental.zsQkqko036I.mp3)
 
